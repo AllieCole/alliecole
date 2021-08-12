@@ -8,5 +8,5 @@ I am a current student at UCSB's Bren school getting my masters in Environmental
 - 💬 Ask me about larval fish from the Pacific! Or anything to do with the ocean (no promisies I will have the right answer though!) 
 - 📫 How to reach me: icole@bren.ucsb.edu or on Twitter! @123alliec 
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I spent a large part of my childhood living in Kampala, Uganda, which really changed my perspective on teh world and ignighted my love of travel! 
+- ⚡ Fun fact: I spent a large part of my childhood living in Kampala, Uganda, which really changed my perspective on the world and ignighted my love of travel! 
 
